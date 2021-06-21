@@ -1,12 +1,1 @@
 # python-assignments
-# python-assignments
-# python-assignments
-# python-assignments
-# python-assignments
-# python-assignments
-# poem2
-# poem2
-# poem2
-# python-assignments
-# assignment2poem
-# assignment2poem
